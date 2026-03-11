@@ -1,0 +1,43 @@
+# Aice room – DREAMY PLANET（feat. YUC'e）
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+まわるまわる惑星
+とびきりの空に
+THREE NIGHT
+溶けてしまうメモリー
+甘い香り満たすCosmic
+キラキラ光るCandy
+ほら
+夢の旅が
+始まる
+僕らのDreamy Planet
+僕らのDreamy Planet
+僕らのDreamy Planet
+リアルに魔法をかけて
+君をつれて行くから
+内緒の世界へと
+今夜、トキメキ隠せない
+まだ起こさないでよ
+おねがい
+まわるまわる惑星
+とびきりの空に
+THREE NIGHT
+溶けてしまうメモリー
+甘い香り満たすCosmic
+キラキラ光るCandy
+ほら、夢の旅が
+続くよ
+僕らのDreamy Planet
+まわるまわる惑星
+とびきりの空に
+THREE NIGHT
+溶けてしまうメモリー
+甘い香り満たすCosmic
+キラキラ光るCandy
+ほら、夢の旅は
+続くよ
+僕らのDreamy Planet
+僕らのDreamy Planet
+```
